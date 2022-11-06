@@ -1,4 +1,8 @@
 My Profile:
 https://scratch.mit.edu/users/TakingA_StrollBRB/
 Games:
-Go Check In My Profile I have 72 games lol
+Go check my profile I have 94 games lol
+My New Profile
+https://scratch.mit.edu/users/Sethilliano/
+Games:
+Go check my profile I have 20 or more games lol
